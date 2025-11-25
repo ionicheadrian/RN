@@ -1,0 +1,1 @@
+#aici o sa inceapa cel mai frumix model
